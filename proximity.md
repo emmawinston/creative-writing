@@ -1,5 +1,6 @@
 # Proximity
-## December 30, 2015
+### December 30, 2015
+
 
 
 I’m on the number 48 bus heading east. I’m thinking about love and indifference and holding and being held, but not in the way that you think.
