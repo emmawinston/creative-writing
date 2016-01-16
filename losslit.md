@@ -1,4 +1,4 @@
-# Losslit
+# LossLit
 
 ### 16 January 2016
 
