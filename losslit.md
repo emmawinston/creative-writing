@@ -13,7 +13,9 @@ You dream of a new colour, so vivid it fills your entire vision. When you wake, 
 ---
 
 acquiescing,
+
 I reach for your hand 
+
 but slip through empty air
 
 ---
