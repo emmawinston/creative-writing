@@ -2,6 +2,10 @@
 
 ### 2 March 2016
 
+Histories and experiences abandoned you, like a murmuration of starlings, until you remembered nothing.
+
+---
+
 She dreamed, into the afternoon, of white flakes falling from the sky. Outside, while she slept, the snow was melting fast.
 
 ---
