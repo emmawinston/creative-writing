@@ -1,5 +1,11 @@
 # LossLit
 
+### 2 March 2016
+
+She dreamed, into the afternoon, of white flakes falling from the sky. Outside, while she slept, the snow was melting fast.
+
+---
+
 ### 16 January 2016
 
 Against all they taught you and everything you learned, the truth is that, with or without them, you were always enough.
